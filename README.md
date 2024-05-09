@@ -1,7 +1,7 @@
 
 ### <sup> A New Challenger Appears!</sup>
 
-Hi! I'm Viktor, and ✨ I make things! ✨ (presumably)
+Hi! I'm Viktor, and I make things! (presumably)
 
 Aspiring game dev and animator 
 
